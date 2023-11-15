@@ -15,7 +15,8 @@
 
 - 📫 How to reach me **marshal.connects@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1zuOsw2eWenPYiCPtRtO1ihCninuHWEhd/view?usp=sharing](https://drive.google.com/file/d/1zuOsw2eWenPYiCPtRtO1ihCninuHWEhd/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1exKwN6t5uc38RkvjP22RRNulPkplGxpV/view?usp=drive_link
+
 
 - ⚡ Fun fact **I'm an avid hiker and have successfully summited five different mountains over 14,000 feet (4,267 meters) in the past year. 🏔️🥾**
 
